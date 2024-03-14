@@ -8,7 +8,7 @@ Xem phim Vietsub Full HD :[➤ Quý Cô Thừa Kế 2 mà chất lượng Full H
 
 English Sub Full HD :[➤ Quý Cô Thừa Kế 2 mà chất lượng Full HD miễn phí](https://movies.topstream10.com/movie/1252618/qu-yacute-c-ocirc-th-7915-a-k-7871-2.html)
 
-<a href="ttps://movies.topstream10.com/movie/1252618/qu-yacute-c-ocirc-th-7915-a-k-7871-2.html" rel="nofollow" ><img src="https://camo.githubusercontent.com/abb2148613ed2c31b6fd5c164e6a142c9074d86e9468c674b26300adbf87c7f7/68747470733a2f2f7374617469632e7769787374617469632e636f6d2f6d656469612f3835356132355f30343362356162656234616534643335616330303331393865376665353665647e6d76322e676966" style="max-width: 100%;"></a>
+<a href="https://movies.topstream10.com/movie/1252618/qu-yacute-c-ocirc-th-7915-a-k-7871-2.html" rel="nofollow" ><img src="https://camo.githubusercontent.com/abb2148613ed2c31b6fd5c164e6a142c9074d86e9468c674b26300adbf87c7f7/68747470733a2f2f7374617469632e7769787374617469632e636f6d2f6d656469612f3835356132355f30343362356162656234616534643335616330303331393865376665353665647e6d76322e676966" style="max-width: 100%;"></a>
 
 Quý Cô Thừa Kế 2 2024
 
